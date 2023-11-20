@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @chankfonts
+- 👋 Hi, I’m @chankfonts aka Chank Diesel.
 - 👀 I’m interested in fonts and art.
 - 🌱 I’m currently learning libre font culture.
 - 💞️ I’m looking to collaborate on a new elementary school font for teachers, parents, students, publishers and designers.
